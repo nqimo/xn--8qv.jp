@@ -1,5 +1,5 @@
 ---
-title: 杏.jp
+title: 双葉結婚相談所
 ---
 
-# 杏ちゃんかわいいやったー！
+# [Plans](https://omiai.stores.jp)
